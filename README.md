@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ishika16s
+- 👀 I’m interested in Machine Learning and AI,Creative Problem-Solving,Collaborative Innovation,Technology Trends and Building Impactful Solutions
+- 🌱 I’m currently learning Btech CSE AI&ML
+- 💞️ I’m eager to dive into innovative challenges and collaborate with like-minded individuals.
+- 📫 How to reach me - https://www.linkedin.com/in/ishika-tanwar
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I’m an adventurous soul who loves exploring new places and taking on challenges
